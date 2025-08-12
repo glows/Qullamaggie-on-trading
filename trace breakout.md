@@ -5,6 +5,7 @@
 I track all of these stocks in this list, all the breakouts and breakdowns today, and I'm gonna track them for a month. And then I usually clean it up.
 
 That's how you train your brain to identify good setups. You gotta track them. This is something you gotta do if you wanna be a successful trader. You gotta look at, you gotta keep track of like breakouts and gap ups with news. I just go back like a month later and see how they did. Like SOXL 30th of June, another one I passed on. All the semi stocks and this one broke out that day.”
+<video src="https://github.com/user-attachments/assets/df007d1a-b1ef-4b6f-bf79-41cd1faee26c" controls width="630" height="300"></video>
 
 ![](https://github.com/user-attachments/assets/df007d1a-b1ef-4b6f-bf79-41cd1faee26c)
 
