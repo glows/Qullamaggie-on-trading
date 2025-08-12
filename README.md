@@ -1,0 +1,1 @@
+# Qullamaggie-on-trading
